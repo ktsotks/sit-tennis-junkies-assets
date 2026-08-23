@@ -1,1 +1,0 @@
-# sit-tennis-junkies-assets
